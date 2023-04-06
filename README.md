@@ -1,1 +1,0 @@
-# techify-system.github.io
